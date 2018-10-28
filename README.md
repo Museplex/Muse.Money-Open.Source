@@ -2,4 +2,4 @@
 ...to a crypto wallet near you!
 
 #   Apply today to participate in pre-ICO development.
-Please submityour contact information and proposals to DrNEO9itOps#@#museplex.com to ge
+Please submit your contact information and proposals to DrNEO9itOps#@#museplex.com to git IT started now!?!
