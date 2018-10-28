@@ -5,3 +5,8 @@ A  nude block chain by artists for artists to ensure for safety and security of 
 #    Apply today to participate in 
 #    the pre-ICO development.
   Please submit your contact information and proposals to DrNEO9itOps#@#museplex.com to git IT started now!?!
+  
+  
+  
+    Happy holidays '18 to our friends, family, and all the ships at sea!
+    Not a trick, only treats for the new year celebration to get started right!
